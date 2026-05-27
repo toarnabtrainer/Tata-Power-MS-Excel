@@ -30,7 +30,8 @@
 
 <hr>
 
-## ✅ MCQ Test-1 Link: https://bit.ly/4fdGASq-
-## ✅ MCQ Test-2 Link: https://bit.ly/3ruth6W-
+## ✅ MCQ Test Links:
+* **🔴 MCQ Test-1 Link:** https://bit.ly/4fdGASq-
+* **🔴 MCQ Test-2 Link:** https://bit.ly/3ruth6W-
 
 <hr>
